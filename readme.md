@@ -1,4 +1,4 @@
-# Démineur
+# Démineur 💣🚧📌
 
 ## Comment jouer
 
